@@ -9,5 +9,4 @@
 - ⚡ Fun fact: videos meme...
 
 
-![](https://media.tenor.com/Rgzw5DNL7eMAAAAj/jin-woo.gif)
 ![](https://media.tenor.com/yuuYrhZj0dQAAAAM/solo-leveling-statue-of-god.gif)
