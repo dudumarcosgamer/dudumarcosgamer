@@ -1,3 +1,5 @@
+### Boas vindas ao meu perfil ⚡
+
 - 👋 Hi, I’m @dudumarcosgamer
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
@@ -6,7 +8,5 @@
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
-<!---
-dudumarcosgamer/dudumarcosgamer is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+![](https://media1.tenor.com/m/F-X3WFaazQAAAAAd/statue-of-god.gif)
+
