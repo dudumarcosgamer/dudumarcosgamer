@@ -8,5 +8,5 @@
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
-![](https://media1.tenor.com/m/F-X3WFaazQAAAAAd/statue-of-god.gif)
 
+![](https://media.tenor.com/Rgzw5DNL7eMAAAAj/jin-woo.gif)
